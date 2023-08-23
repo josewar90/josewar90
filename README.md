@@ -1,5 +1,8 @@
 ### Hi there 👋
 https://josewar90.github.io/
+https://www.linkedin.com/in/jos%C3%A9-carmona-ba7332238/
+https://www.instagram.com/josecarmona/?utm_source=qr&igshid=NGExMmI2YTkyZg%3D%3D
+https://discord.com/channels/@me
 <!--
 **josewar90/josewar90** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
